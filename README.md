@@ -7,6 +7,7 @@ DNI: homophobe, transphobe, racist, proship, pedo, z00, romantic intent, if you'
 Basic overview of my nametags on PT!!
 
 W2i: I normally use this while I am offtab. W2i is generally preferred, but if W2i is in my name, I CANNOT SEE YOUR MESSAGES UNLESS YOU WHISPER AND WILL NOT RESPOND UNLESS YOU WHISPER. 
+
 IWC: Interact with care. If the tag is in my name I'm probably jittery and would prefer if you do not come on too strong or rush at me with spam boops.
 Generally I'm cool with C+H, but please don't fully cover me!
 
