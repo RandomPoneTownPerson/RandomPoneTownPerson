@@ -20,3 +20,6 @@ Fandoms: TADC, Murder Drones, Raggedy Ann, Ena, Kid Icarus Uprising, Bloodmoney 
 
 I like interacting with people from my fandoms, but I may be a bit awkward at first. I also appreciate if you use tone tags (not required!). 
 Likely will update this later, but for now have a nice day, stay safe, and drink plenty of water. ^^
+
+If you read this far, whisper me a 🐛!!
+
