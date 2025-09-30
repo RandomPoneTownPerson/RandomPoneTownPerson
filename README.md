@@ -1,7 +1,7 @@
 Hi, my name is Bug! You can also call me Doodlebug, Lena, or the name of the character I'm playing as. ^^ here's a basic overview/DNI list for ya
 
 
-DNI: homophobe, transphobe, racist, proship, pedo, z00, romantic intent, if you're just going to act freaky/s3xu4l (even as a joke, it makes me uncomfy!) Ships (I don't mind if you ship things, just don't ship your character with mine or force ships upon me). I will hide or block you if you make me uncomfortable or break my boundaries. If you do not like my boundaries, either 1: Block me, or 2: Don't interact with me.
+DNI: homophobe, transphobe, racist, proship, pedo, z00, romantic intent, if you're just going to act freaky/s3xu4l (even as a joke, it makes me uncomfy!) Ships (I don't mind if you ship things, just don't ship your character with mine or force ships upon me), KYS jokes, slurs, S/H jokes. I will hide or block you if you make me uncomfortable or break my boundaries. If you do not like my boundaries, either 1: Block me, or 2: Don't interact with me.
 
 
 Basic overview of my nametags on PT!!
