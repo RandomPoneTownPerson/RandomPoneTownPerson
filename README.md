@@ -4,7 +4,8 @@ Hi, my name is Bug! You can also call me Doodlebug, Lena, or the name of the cha
 DNI: homophobe, transphobe, racist, proship, pedo, z00, romantic intent, if you're just going to act freaky/s3xu4l (even as a joke, it makes me uncomfy!) Ships (I don't mind if you ship things, just don't ship your character with mine or force ships upon me). I will hide or block you if you make me uncomfortable or break my boundaries. If you do not like my boundaries, either 1: Block me, or 2: Don't interact with me.
 
 
-basic overview of my nametags on PT!!
+Basic overview of my nametags on PT!!
+
 W2i: I normally use this while I am offtab. W2i is generally preferred, but if W2i is in my name, I CANNOT SEE YOUR MESSAGES UNLESS YOU WHISPER AND WILL NOT RESPOND UNLESS YOU WHISPER. 
 IWC: Interact with care. If the tag is in my name I'm probably jittery and would prefer if you do not come on too strong or rush at me with spam boops.
 Generally I'm cool with C+H, but please don't fully cover me!
