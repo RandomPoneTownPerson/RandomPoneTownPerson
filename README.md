@@ -12,7 +12,7 @@ IWC: Interact with care. If the tag is in my name I'm probably jittery and would
 
 COMF: The pony I'm playing as is my comfort character.
 
-SV: Semi verbal. I probably won't talk much and instead will use emoticons or something
+SV: Semi verbal. I probably won't talk much and instead will mostly use emoticons or something.
 
 Generally I'm cool with C+H, but please don't fully cover me!
 
